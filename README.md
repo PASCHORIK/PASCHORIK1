@@ -1,1 +1,0 @@
-# PASCHORIK1
